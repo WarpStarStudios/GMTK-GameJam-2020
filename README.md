@@ -1,1 +1,0 @@
-# GMTK-GameJam-2020
